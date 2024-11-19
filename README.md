@@ -1,0 +1,2 @@
+# ideas
+Just my thoughts
